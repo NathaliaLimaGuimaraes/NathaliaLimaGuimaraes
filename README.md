@@ -6,8 +6,8 @@ Sou uma profissional movida pelo desafio e pela curiosidade incessante. Com um b
 Minha transição de carreira reflete minha busca por novos horizontes e aprendizado contínuo. Sou conhecida pela minha proatividade e comprometimento, sempre obstinada em alcançar os resultados..
 
 
-- 🔭 Atualmente estou em busca de oportunidades na Aréa de Análise de Dados 
-- 🌱 Estudando Análise de Dados 
+- 🎲 Atualmente estou em busca de oportunidades na Aréa de Análise de Dados 
+- 📕 Estudando Análise de Dados 
 - 😄 Pronome: Ela/Dela
 - ⚡ Um fato interessante sobre mim: sou ambidestra e tem dificuldade com direito/esquerdo ↔😅
 
